@@ -7,3 +7,8 @@ Feel free to use however you want! If you want to show it to other people(online
 
 # PROMPT
 white and gray gradient background, 3 white waves with shades coming on eachother, smooth, no wrinkles, only 3 waves that are smooth, minimalistic
+
+If you want to commit one, send me a message on reddit(u/toni20k).
+
+
+# I WILL ADD A ZIP FILE WHEN THE FOLDER REACHES 500 MB. I WILL ADD ANOTHER 500 MB TO IT IF YOU WOULD WANT IT.
