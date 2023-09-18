@@ -12,3 +12,7 @@ If you want to commit one, send me a message on reddit(u/toni20k).
 
 
 # I WILL ADD A ZIP FILE WHEN THE FOLDER REACHES 500 MB. I WILL ADD ANOTHER 500 MB TO IT IF YOU WOULD WANT IT.
+
+
+PREVIEW:
+https://ibb.co/TwxVM8K
